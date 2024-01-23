@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **taylorhood1002@gmail.com**
 
-- ⚡ Fun fact **I'm a Future tech wizard in the making!**
+- ⚡ Fun fact **I'm a future tech wizard in the making!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
